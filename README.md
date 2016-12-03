@@ -4,4 +4,4 @@ Watch out for this group
 
 * [Janet](https://www.janetonabanjo.blogspot.com)
 * [Kevin](https://www.instagram.com/immrkda)
-* [Ricardo](https://www.instagram.com/namethatking)
+* [Ricardo](https://www.instagram.com/the.dirtyartist)
