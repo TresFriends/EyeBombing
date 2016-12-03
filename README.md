@@ -5,3 +5,6 @@ Watch out for this group
 * [Janet](https://www.janetonabanjo.blogspot.com)
 * [Kevin](https://www.instagram.com/immrkda)
 * [Ricardo](https://www.instagram.com/the.dirtyartist)
+
+
+[Presentation](https://github.com/TresFriends/EyeBombing/blob/master/Visual_perception_.pdf)
